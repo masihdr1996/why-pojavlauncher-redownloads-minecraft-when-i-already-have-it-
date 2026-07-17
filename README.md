@@ -1,0 +1,1 @@
+# why-pojavlauncher-redownloads-minecraft-when-i-already-have-it-
